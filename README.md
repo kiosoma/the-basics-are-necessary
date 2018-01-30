@@ -1,4 +1,10 @@
 # the-basics-are-necessary
 tutorial
-it doesnt matter 
-i will find my own way
+the tutorial 
+though frustrating and time consuming
+it is sometimes necessary to know your way
+noticing the word "sometimes"
+you sometimes can disregard the rules and find your own path 
+may it be the same or different
+you are still learning
+
